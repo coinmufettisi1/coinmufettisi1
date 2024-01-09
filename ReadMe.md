@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=coinmufettisi1&label=Profile%20views&color=0e75b6&style=flat" alt="sinyordes" /> </p>
 
-- 📫 How to reach me **nftmufettisi@gmail.com**
+- 📫 How to reach me **mufettis@whalealpha.org**
 
 
 <!---
